@@ -13,7 +13,8 @@ And whenever I asked, you always listened and gave what I **needed**.
 
 ~~It was a privilege to give help whenever you needed it.~~
 
-A concientous friend and a willing voluntier, giving your time  
+A conscientious friend and a willing volunteer, giving your time freely.
+
 
 
 ## Grandchild
