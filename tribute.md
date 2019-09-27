@@ -11,11 +11,13 @@ When I made mistakes, you helped me without judgement.
 
 And whenever I asked, you always listened and gave what I **needed**.
 
+It was my privilege to repay you when you needed help.
+
 
 
 
 ## Grandma
 
-Sister
+## Sister
 
-Friend
+## Friend
