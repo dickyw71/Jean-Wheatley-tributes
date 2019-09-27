@@ -1,6 +1,6 @@
-# Jean Wheatley
+# Our tribute to Jean Wheatley
 
-## Mum
+## Son
 You raised me kindly into the man I am today.
 
 Through the good, bad and ugly times, you loved and supported me.
@@ -11,12 +11,12 @@ When I made mistakes, you helped me without judgement.
 
 And whenever I asked, you always listened and gave what I **needed**.
 
-It was my privilege to repay you when you needed help.
+~~It was a privilege to give help whenever you needed it.~~
+
+A concientous friend and a willing voluntier, giving your time  
 
 
-
-
-## Grandma
+## Grandchild
 
 ## Sister
 
