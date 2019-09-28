@@ -1,5 +1,5 @@
 ![Jean](./jean.png)
-# Tributes 
+
 ## Family and friends
 
 Thank you Mum for raising me _kindly_ into the man I am today.
