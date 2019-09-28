@@ -1,5 +1,6 @@
 ![Jean](./jean.png)
-# Tributes from family and friends
+# Tributes 
+## Family and friends
 
 Thank you Mum for raising me _kindly_ into the man I am today.
 Through good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my success and when I erred, your council was without judgement. 
@@ -11,5 +12,5 @@ You greatly enjoyed singing and regularly added your _sweet_ voice to the _Long 
 
 **_by Richard Wheatley_**
 
-### License
+## License
 See the [License File](./LICENSE.md).
