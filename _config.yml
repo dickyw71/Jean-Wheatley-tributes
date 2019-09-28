@@ -6,3 +6,4 @@ relative_links:
 include:
   - tribute.md
   - README.md
+theme: jekyll-theme-cayman
