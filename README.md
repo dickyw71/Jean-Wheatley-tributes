@@ -1,5 +1,5 @@
 ![Jean](./jean.png)
-# Personal tributes to Jean Wheatley
+## from family and friends
 
 Thank you Mum for raising me _kindly_ into the man I am today.
 Through the good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my success; when I erred, your council came without judgement. 
