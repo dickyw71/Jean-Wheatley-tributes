@@ -4,6 +4,6 @@ relative_links:
   enabled: true
   collections: true
 include:
-  - tribute.md
+  - index.md
   - README.md
 theme: jekyll-theme-cayman
