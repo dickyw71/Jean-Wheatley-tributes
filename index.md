@@ -1,20 +1,18 @@
-# Tributes to Jean Wheatley
+# Personal tributes to Jean Wheatley
 
-## Son
 You raised me kindly into the man I am today.
 
 Through the good, bad and ugly times, you loved and supported me.
 
-When I acheived, you proudly celebrated success with me.
+When I acheived, you proudly celebrated success with me; when I erred, your council came without judgement. 
 
-When I erred, you councilled me without judgement. 
+When I asked, you gave all I **needed**; it was my privilege help you in return.
 
-And whenever I asked, you always gave what I **needed**.
+You were a conscientious and faithful friend; a willing volunteer, giving time generously and with enthusiasm. 
 
-~~It was a privilege to give help whenever you needed it.~~
+You had a passion for singing with a choir and had a sweet voice.
 
-You were a conscientious friend and a willing volunteer, giving your time generously.
-
+### *by Richard Wheatley*
 
 
 ## Grandchild
