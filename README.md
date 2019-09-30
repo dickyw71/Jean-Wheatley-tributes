@@ -14,17 +14,18 @@
 
 >_"In November 1970, Jean and Alan were married and the following August they had a son, Richard."_
 
->_"Jean and Alan owned and ran a Newsagents shop in Long Eaton during the seventies and early eighties. Many regular customers in the shop still have memories of the friendly family business."_
+>_"Together, Jean and Alan owned and ran a Newsagents shop in Long Eaton during the seventies and early eighties. Regular customers in the shop remember the friendly family business and as a family we enjoyed many happy times together."_
 
-Dads illness and death, moving on rebuild a new life as a widow with a 11 year old son. Taking time to immprove her education and valifications before re-entering the workforce in the late eighties as a business administrator for the British Red Cross at their Nottingham training centre.
+>_"Alan's illness and tragic death in 1982 was a massive loss to both Jean and Richard."_
 
->_"In retirement, Jean maintained a full calendar of regular meet-ups with friends, keep-fit, lunch outings and holidays across the globe. She greatly enjoyed singing and regularly added her 'sweet' voice to the Long Eaton U3A Singers group."_
+>_"In time Jean rebuilt a her life as a widow with her son. She committed herself to education, gained 'A' levels and re-entered working life with the British Red Cross in Nottingham, where she worked for many years."_
 
->_"Mum was a conscientious and faithful friend to a fortunate few."_
+>_"In retirement, Jean was often busy with friends going on shopping trips, to keep-fit classes, lunches  and holidays across the globe. She loved singing and regularly added her 'sweet' voice to the Long Eaton U3A Singers group. She was also blessed with two grandchildren, Eleanor and Oscar, that gave her so much pleasure."_
 
->_"Thank you Mum for raising me kindly into the man I am today.
-Through good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my successes and when I erred, your advice was given without judgement. 
-You gave me all that I **needed** and it was my privilege to help you in return."_
+>_"Mum was a conscientious and faithful friend."_
+
+>_"Thank you Mum for raising me kindly into the man I am today. Through good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my successes and when I erred, your advice was given without judgement. 
+You gave me all that I **needed** and it was my privilege to love you in return."_
 
 **_Richard Wheatley_**
 
