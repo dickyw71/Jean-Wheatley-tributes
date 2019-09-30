@@ -38,7 +38,7 @@
 
 ---
 
->_"Jeanie was a loyal and faithful friend who was kind, throughtful, generous and selfless. Loved by everyone who knew her."_
+>_"Jeanie was a loyal and faithful friend who was kind, thoughtful, generous and selfless. Loved by everyone who knew her."_
 
 **_Kathleen Trimmer_**
 
