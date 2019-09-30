@@ -51,5 +51,18 @@
 **_Alison Wheatley_**
 
 ---
+
+>_"Jean - Where do I start?"_
+
+>_"I wonder how many hours we spent 'behind the counter' together.  Quite a few, over the years.  You were always so cheerful and a joy to be around.  I felt you always put others first and were there for anyone who needed you."_
+
+>_"But - I think your proudest achievement must be Richard.  You brought him up so well that he has become such a fine young man and, in turn, he and Alison are bringing up their own two children in much the same way.  Thank you for trusting me to babysit him, all those years ago!!"_
+
+>_"We may not have seen as much of each other, in recent years, but I will miss you."_
+
+**_Carol Soars_**
+
+---
+
 ## License
 See the [License File](./LICENSE.md).
