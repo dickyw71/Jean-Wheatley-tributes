@@ -6,7 +6,7 @@
 
 >_"At school she played on the Hockey team and also competed for the county."_
 
->_"In December 1960, at age 15, Jean left Highoakham school to work in the office of Kirk Brothers Builders in Mansfield were she learned, amongst other things, how to use the 'Telex' (the forerunner of fax, email, and text messaging). She later moved jobs to Mansfield Metalbox where she worked until the early 1970s."_
+>_"In December 1960, at age 15, Jean left Highoakham school to work in the office of Kirk Brothers Builders in Mansfield were she learned, amongst other things, how to use the 'Telex' (the forerunner of fax, email, and text messaging). She later moved on to Mansfield Metalbox where she worked until the early 1970s."_
 
 >_"During a night-out in Nottingham, with her friend 'Katie Burns', Jean met Alan Wheatley and they began 'courting' soon afterwards."_ 
 
@@ -18,13 +18,13 @@
 
 Dads illness and death, moving on rebuild a new life as a widow with a 11 year old son. Taking time to immprove her education and valifications before re-entering the workforce in the late eighties as a business administrator for the British Red Cross at their Nottingham training centre.
 
->_"In retirement, Jean maintained a full calendar of regular meet-ups with friends, keep-fit, lunch outings and holidays across the globe. She greatly enjoyed singing and regularly added her _sweet_ voice to the Long Eaton U3A Singers group."_
+>_"In retirement, Jean maintained a full calendar of regular meet-ups with friends, keep-fit, lunch outings and holidays across the globe. She greatly enjoyed singing and regularly added her 'sweet' voice to the Long Eaton U3A Singers group."_
 
 >_"Mum was a conscientious and faithful friend to a fortunate few."_
 
 >_"Thank you Mum for raising me _kindly_ into the man I am today.
 Through good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my successes and when I erred, your advice was given without judgement. 
-You gave me all that I _needed_ and it was my privilege to help you in return."_
+You gave me all that I **needed** and it was my privilege to help you in return."_
 
 **_Richard Wheatley_**
 
