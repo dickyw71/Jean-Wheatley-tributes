@@ -8,9 +8,9 @@
 
 >_"In December 1960, at age 15, Jean left Highoakham school to work in the office of Kirk Brothers Builders in Mansfield were she learned, amongst other things, how to use the 'Telex' (the forerunner of fax, email, and text messaging). She later moved on to Mansfield Metalbox where she worked until the early 1970s."_
 
->_"During a night-out in Nottingham, with her friend 'Katie Burns', Jean met Alan Wheatley and they began 'courting' soon afterwards."_ 
+>_"During a evening-out with friends in Nottingham Jean met Alan Wheatley and they began 'courting' soon afterwards."_ 
 
->_"Jean and Alan became engaged and travelled Europe together in Alan's british racing green Austin-Healey Sprite sports car; whislt driving in the mountains the luggage rack, and Jean's suitcase, suddenly parted company with the car!"_
+>_"Jean and Alan were engaged and travelled Europe together in Alan's british racing green Austin-Healey Sprite sports car. Whislt driving in the mountains the luggage rack, and Jean's suitcase, suddenly parted company with the car and Jean belongings were scattered down the hillside"_
 
 >_"In November 1970, Jean and Alan were married and the following August they had a son, Richard."_
 
@@ -18,14 +18,15 @@
 
 >_"Alan's illness and tragic death in 1982 was a massive loss to both Jean and Richard."_
 
->_"In time Jean rebuilt a her life as a widow with her son. She committed herself to education, gained 'A' levels and re-entered working life with the British Red Cross in Nottingham, where she worked for many years."_
+>_"In time, Jean rebuilt a her life as a widow with her son. She committed herself to further education, gained 'A' levels and re-entered working life with the British Red Cross in Nottingham, where she worked for many years."_
 
->_"In retirement, Jean was often busy with friends going on shopping trips, to keep-fit classes, lunches  and holidays across the globe. She loved singing and regularly added her 'sweet' voice to the Long Eaton U3A Singers group. She was also blessed with two grandchildren, Eleanor and Oscar, that gave her so much pleasure."_
+>_"In retirement, Jean was often busy with friends going on shopping trips, to keep-fit classes, lunches  and holidays across the globe. She loved singing and regularly added her 'sweet' voice to the Long Eaton U3A Singers group."_ 
+
+>_"Jean was blessed with two wonderful grandchildren, Eleanor and Oscar, they gave her much pleasure when she was with them."_
 
 >_"Mum was a conscientious and faithful friend."_
 
->_"Thank you Mum for raising me kindly into the man I am today. Through good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my successes and when I erred, your advice was given without judgement. 
-You gave me all that I **needed** and it was my privilege to love you in return."_
+>_"Thank you Mum for raising me kindly into the man I am today. Through good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my successes and when I erred, your advice was given without judgement. You gave me all that I **needed** and it was my privilege to love you in return."_
 
 **_Richard Wheatley_**
 
