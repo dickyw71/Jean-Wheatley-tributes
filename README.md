@@ -22,7 +22,7 @@ Dads illness and death, moving on rebuild a new life as a widow with a 11 year o
 
 >_"Mum was a conscientious and faithful friend to a fortunate few."_
 
->_"Thank you Mum for raising me _kindly_ into the man I am today.
+>_"Thank you Mum for raising me kindly into the man I am today.
 Through good, bad and ugly times, you loved and supported me. When I achieved, you proudly celebrated my successes and when I erred, your advice was given without judgement. 
 You gave me all that I **needed** and it was my privilege to help you in return."_
 
