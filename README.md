@@ -24,5 +24,12 @@ You gave all that I _needed_ and it was my privilege to help you in return.
 
 ---
 
+>Jean and I were united in a common love - Richard. We were united in the good times - Richard achieving a first at University, getting married and the joy of children/grandchildren. We were united in the hard times - some of you will recall January 2014.
+
+>I admired Jeans resilience and drive, both in her working life and when she restired. I will miss her.
+
+**_Alison Wheatley_**
+
+---
 ## License
 See the [License File](./LICENSE.md).
