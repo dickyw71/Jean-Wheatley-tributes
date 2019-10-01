@@ -10,7 +10,7 @@
 
 >_"During a evening-out with friends in Nottingham Jean met Alan Wheatley and they began 'courting' soon afterwards."_ 
 
->_"Jean and Alan were engaged and travelled Europe together in Alan's british racing green Austin-Healey Sprite sports car. Whislt driving in the mountains the luggage rack, and Jean's suitcase, suddenly parted company with the car and Jean belongings were scattered down the hillside"_
+>_"Jean and Alan were engaged and travelled Europe together in Alan's British racing green Austin-Healey Sprite sports car. While driving in the Alps the luggage rack, and Jean's suitcase, suddenly parted company with the car and Jean belongings were scattered all down the hillside"_
 
 >_"In November 1970, Jean and Alan were married and the following August they had a son, Richard."_
 
@@ -32,7 +32,7 @@
 
 ---
 
->_"Our Jean was a warm, likable, loving sister who was easy going, socialable and an asset to our lives. I could not have wished for a better sister."_
+>_"Our Jean was a warm, likable, loving sister who was easy going, sociable and an asset to our lives. I could not have wished for a better sister."_
 
 **_Norman Richardson_**
 
