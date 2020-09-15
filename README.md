@@ -46,7 +46,7 @@
 
 >_"Jean and I were united in a common love - Richard. We were united in the good times - Richard achieving a first at University, getting married and the joy of children/grandchildren. We were united in the hard times - some of you will recall January 2014."_
 
->_"I admired Jeans resilience and drive, both in her working life and when she restired. I will miss her."_
+>_"I admired Jeans resilience and drive, both in her working life and when she retired. I will miss her."_
 
 **_Alison Wheatley_**
 
